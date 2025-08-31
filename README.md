@@ -47,7 +47,6 @@ Google Project Management • Agile Development • Digital Product Management �
 ## 📫 How to reach me
 - Email: **alifarhani7727315@gmail.com**
 - Telegram/X: **@alifa433**
-- Phone: **+98 990 066 7617** (when appropriate) :contentReference[oaicite:2]{index=2}
 
 ---
 
